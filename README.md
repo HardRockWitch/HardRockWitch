@@ -10,4 +10,8 @@
 
 <p>I don't get on as much as i use to, but if you care, <b>my interests are zenless zone zero, guilty gear, trigun, chiikawa, etc</b></p>
 
-<p align="center">Say something to me -> <a href="https://cutevampires.atabook.org/">ATABOOK</a></p> <align="center">
+<p align="center">Say something to me -> <a href="https://cutevampires.atabook.org/">ATABOOK</a></p>
+
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=HARDROCKWITCH&color=a9a5c2&label=bunnies)
