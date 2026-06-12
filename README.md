@@ -8,7 +8,7 @@
 <br><sub><a href="https://marlene.straw.page">StrawPage</a> ✦ <a href="https://toyhou.se/LuvBuns">ToyHouse</a> ✦ <a href="https://artfight.net/~LuvBuns">ArtFight</a></sub></h3>
 <p><b>I'm not the most social person, especially with one on one conversations. i usually don't int first, but i am friendly</b>. i hide freely, if you annoy me in any way or if you're just weird.</p>
 
-<p>I don't get on as much as i use to, but if you care, <b>my interests are zenless zone zero, guilty gear, trigun, chiikawa, etc</b></p>
+<p>I don't get on as much as i use to, but if you care, <b>my interests are eddsworld, zzz, guilty gear, trigun, chiikawa, etc</b></p>
 
 <p align="center">Say something to me -> <a href="https://cutevampires.atabook.org/">ATABOOK</a></p>
 
